@@ -16,6 +16,9 @@ We all have different backgrounds and different levels of knowledge of different
 
 Of your own feelings and those of others, as well as of all races, cultures, sexual orientations, gender identities, religions, class backgrounds, abilities, body sizes and perspectives when speaking.
 
+From @Tina Deng:
+When listening to others, try to think at their points. Being understanding and sympathying for others is very important.
+
 ## **Recognize your own and others’ privilege**
 
 When entering a space, when speaking or not speaking be aware of privilege based on many forms of identity. At the same time, **don’t assume the identity** of others.
