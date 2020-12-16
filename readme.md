@@ -118,3 +118,6 @@ Make sure to enjoy what you make, what you learn and what you share.
 ## **Be understanding of Time zones and Schedules**
 
 Understand the different time zones your peers are in.
+
+From @Tina Deng:
+We are located in different locations with different time zones and different part of the day. I had never had a class that started at 11 PM, and it really is challenging for me because my brain literally stops working at late night.
