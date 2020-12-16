@@ -9,6 +9,9 @@ are all learners and have different life experiences; we can all learn
 from each other without canceling anyone.
 2. We can’t be eloquent all the time.
 
+From @Tina Deng:
+We all have different backgrounds and different levels of knowledge of different things. It is very lucky to be in diversified community like this.
+
 ## **Be respectful**
 
 Of your own feelings and those of others, as well as of all races, cultures, sexual orientations, gender identities, religions, class backgrounds, abilities, body sizes and perspectives when speaking.
